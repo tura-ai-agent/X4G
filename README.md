@@ -1,3 +1,5 @@
+**فارسی** | [English](README.en.md)
+
 کانال یوتوب : [https://www.youtube.com/@X4GHUB](https://www.youtube.com/@X4GHUB)
 
 # 🚀 X4G
